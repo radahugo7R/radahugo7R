@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @radahugo7R
-- 👀 I’m interested in ...positive progress 
-- 🌱 I’m currently learning ...coding
+- 👀 I’m interested in ...positive progress cripotologia
+- 💎I’m currently learning ...coding 
 - 💞️ I’m looking to collaborate on ...teams
 - 📫 How to reach me ... radahernandezh@gmail.com
 
